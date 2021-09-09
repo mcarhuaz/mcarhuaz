@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mcarhuaz
+- 👀 I’m interested in Mining, safety, risk management, ISO audits
+- 🌱 I’m currently learning Water in Mine operation and slope stability
+- 💞️ I’m looking to collaborate on mine sector
+- 📫 How to reach me mcarhuaz@pucp.pe
